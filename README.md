@@ -1,1 +1,2 @@
 # Valorant-Magazin
+# Sitemize hoşgeldiniz!
